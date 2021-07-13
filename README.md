@@ -4,6 +4,8 @@ Olá bem vindo ao meu livro de receitas. :wave:
 
 - Strgonoff de Frango
 
+- Pavê
+
   
 
 
